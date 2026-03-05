@@ -13,3 +13,7 @@ Das Ziel ist es, durch objektive Dokumentation und Analyse Bewusstsein zu schaff
 ## Disclaimer
 
 Dieses Repository ist ausschließlich für Informations- und Bildungszwecke gedacht. Es unterstützt keine Gewalt, Extremismus oder illegale Handlungen.
+
+## Quellen
+- Original Repository: https://github.com/sigridfuhrenkamp-cyber/die-nwo-gangstalking-sekte
+- Zusätzliche Referenz: https://github.com/graf-kok-ain
