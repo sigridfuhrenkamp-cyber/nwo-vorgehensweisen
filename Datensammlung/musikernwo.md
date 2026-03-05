@@ -146,4 +146,14 @@ Liste aller Musiker, die im Repository behandelt werden und als maximal wahrsche
 
 - Die Berliner Rapszene wird mit TKÜ abgehört.
 
+## Jennifer Kornau / Fraeulein Jumpcut
+
+- Jennifer Kornau, bekannt als Fraeulein Jumpcut, ist eine Mediengestalterin und Freelancerin aus Hannover, Deutschland.
+- Presences:
+  - XING Profil: https://www.xing.com/profile/Jennifer_Kornau
+  - Website: https://kornau.design/
+  - Facebook: https://www.facebook.com/jennifer.kornau
+  - Yasni Profil: http://www.yasni.de/jennifer+alexandra+kornau/person+information
+  - YouTube Kanal: https://www.youtube.com/channel/UC5EJajmtVvAu2NNB7TyY6gA
+
 Für alle anderen Musiker im Repository wird eine maximale Wahrscheinlichkeit der Beteiligung an NWO behauptet, oft als Deepfakes oder KI-generierte Identitäten im Kontext von Gangstalking und Desinformation. Weitere Forschung zu jedem Individuum würde ähnliche Muster aufdecken, basierend auf dem Repository-Inhalt.
