@@ -7,6 +7,8 @@ Quelle: Websuchen und Verschwörungstheorien
 ## Überblick
 Diese Dokumentation basiert auf umfassenden Websuchen nach Vorgehensweisen der N.W.O. (New World Order). Sie umfasst allgemeine Methoden, Taktiken und Ansätze, sowie spezifische Themen wie Gangstalking und Targeted Individuals. Elektronische Waffen werden ausgeschlossen, da diese als Desinformation ("Fake-Noise") betrachtet werden, die von Nazis gelegt werden, um Opfer in der Falle zu halten.
 
+Das Ziel der N.W.O. ist nur eines: Die Demokratien in Europa vollständig zu zerstören!
+
 ## Allgemeine Vorgehensweisen der N.W.O.
 
 ### Postulierte Implementierungen (aus Wikipedia)

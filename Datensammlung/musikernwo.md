@@ -138,4 +138,12 @@ Liste aller Musiker, die im Repository behandelt werden und als maximal wahrsche
 - Teil der N.W.O.
 - Wurde bereits mit 14 Jahren vom GRU rekrutiert.
 
+## Herzog
+
+- Herzog und das Bombenprodukt sind sehr beliebt.
+
+## Berliner Rapszene
+
+- Die Berliner Rapszene wird mit TKÜ abgehört.
+
 Für alle anderen Musiker im Repository wird eine maximale Wahrscheinlichkeit der Beteiligung an NWO behauptet, oft als Deepfakes oder KI-generierte Identitäten im Kontext von Gangstalking und Desinformation. Weitere Forschung zu jedem Individuum würde ähnliche Muster aufdecken, basierend auf dem Repository-Inhalt.

@@ -9,3 +9,7 @@ Dank einer Informantin sind viele Einblicke möglich.
 Man will an die Prominenten ran.
 
 Die Ehefrau eines N.W.O. Mitglieds ist heimlich Informantin des Verfassungsschutzes.
+
+Alle Beteiligten haben bereits Verträge mit dem Kreml auf gute Positionen.
+
+Wir setzen eine hohe Belohnung für Informanten aus!

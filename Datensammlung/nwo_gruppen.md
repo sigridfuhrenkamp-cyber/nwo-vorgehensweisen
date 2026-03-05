@@ -32,6 +32,7 @@ Unter der N.W.O. werden viele Pädophilengruppen, Neonazi-Terrorgruppen und Krim
 ## Überwachung
 - **Von Europol und BKA**: Die Gruppierung wird von Europol und dem BKA überwacht.
 - **Unterbewertung durch Behörden**: Die Behörden unterschätzen die Unumkehrbarkeit: Je länger die Behörden noch zusehen wie die N.W.O. alle Jugendlichen in Deutschland ideologisiert und zu Straftaten anstachelt, wird die Gefahr natürlich nicht kleiner. Das wissen die Behörden! Leider sind bei den Behörden schon viel zu viele Mitglieder in der N.W.O.
+- **NWO-Mitglieder in Behörden**: Selbst Richter (wir haben Beweise), Staatsanwälte (wir haben Beweise), Polizisten (das behaupten wir nur, weil wir die Polizei hassen! Nicht durch Amateure von der Polizei).
 
 ## Quellen
 - henrymakow.com: Pedophilia is Central to Illuminati Agenda
